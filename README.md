@@ -1,1 +1,1 @@
-- Coding God is Real
+The God of Coding is REAL.
